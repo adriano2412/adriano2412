@@ -1,3 +1,3 @@
-
-
-- gju 7y
+- Olá, sou o murilo adriano,tenho 15 anos, estudo na escola E.E PEI Leonardo Vilas Boas
+- gosto de jogar futebol, desenhar, grafittar, e conversar com amigos.
+- gosto da matéria de matematica, e de fisica tambem, apesar de serem bem dificeis
